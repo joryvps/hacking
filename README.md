@@ -1,1 +1,2 @@
-# hacking
+JORY.JY 
+YURI VASQUEZ OSCCO
